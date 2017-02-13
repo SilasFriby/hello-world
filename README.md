@@ -2,4 +2,4 @@
 
 Hi Humans!
 
-My name is Silas Furu
+My name is Silas Furu Friby
